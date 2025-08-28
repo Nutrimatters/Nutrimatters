@@ -1,7 +1,7 @@
 - 👋 Hi, We're @Nutrimatters.org
 - 👀 Nutrimatters is an IRS-approved nonprofit foundation dedicated to a healthier future for everyone free of obesity and metabolic disease. 
 - 🌱 We're currently working on our curriculum for online courses to teach nutrition direct from the scientists.
-- 💞️ We're looking to collaborate on 2.5D graphics, animation, and illustrations for education.
+- 💞️ We're looking to collaborate on video, graphics, animation, and illustrations for education.
 - 📫 Reach us at support@nutrimatters.org
 - 
 - 
